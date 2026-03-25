@@ -1,6 +1,6 @@
 # 18 - 磁力光标效果
-<a href="https://www.bilibili.com/video/BV1ABC7BYEky">
-<img src="https://i2.hdslb.com/bfs/archive/bb614d19edf44b96302bbe25744bb54db9912b8f.jpg" width="70%">
+<a href="https://www.bilibili.com/video/BV1rEQ1BbEmn">
+<img src="https://i0.hdslb.com/bfs/archive/3bd29f296611e492fb837452b735a4b7c24faeb0.jpg" width="70%">
 </a>
 
 **👆👆点击跳转: Bilibili📺教程视频链接**
